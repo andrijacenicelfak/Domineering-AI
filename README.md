@@ -1,1 +1,1 @@
-# Domineering-AI
+# Vestacka_projekat_I
